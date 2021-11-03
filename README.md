@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @raoakash01
 - 👀 I’m interested in coding , development , ethical and cyber security. 
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on .linkedIn--https://www.linkedin.com/in/akash-rao-a27a78212
 - 📫 How to reach me ...8094778725 or @raoakash269gmail.com
 
 <!---
