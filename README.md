@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @raoakash01
 - 👀 I’m interested in coding , development. 
-- 🌱 I’m currently learning ...C,Blender
 - 💞️ I’m looking to collaborate on .linkedIn--https://www.linkedin.com/in/akash-rao-here/
 - 📫 How to reach me ...8094778725 or @raoakash269gmail.com
 
